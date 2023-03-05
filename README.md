@@ -1,5 +1,5 @@
 
-最新地址:https://ohxoh.com
+最新地址:https://ohxoh.com/index.php
 
 老司机精品资源库
 
